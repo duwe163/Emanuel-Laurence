@@ -1,2 +1,2 @@
-# Emanuel-Laurence
+Emanuel-Laurence
 personal portifolio
